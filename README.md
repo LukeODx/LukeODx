@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LukeODx
+- 👀 I’m interested in tools to empower Humanity and strengthen Communities.
+- 🌱 I’m currently learning how to Adult on this planet...
+- 💞️ I’m looking to collaborate on eDemos :) - a Civic Engagement and Community Platform
+- 📫 You can reach me on X @LukeODx , on LinkedIn @Luke O'Donoughue , and on Insta @Luke.OD
+- ⚡ Fun fact: I'm a part owner of the Salford Red Devils and was the first Nominating Officer of the Northern Independence Party
